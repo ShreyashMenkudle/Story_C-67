@@ -12,7 +12,7 @@ The rabbit was surprised by the challenge of the tortoise. But he accepted the c
 
 So, the tortoise and rabbit started the race. The rabbit was as usual very fast and went far away. While the tortoise was left behind. 
 
-After a while, the rabbit looked behind.1431241 
+After a while, the rabbit looked behind.jikhfgtfrdt 
 
 He said to himself, “The slow turtle will take ages to come near me. I should rest a bit”. 
 
